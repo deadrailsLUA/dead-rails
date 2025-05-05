@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/50b2e350-0b7c-45f7-a4fb-c0aecb142c84)# Dead Rails Script ⚔️ | Fly, Auto Win, ESP, Item TP & More | 2025 Mega Update
+# Dead Rails Script ⚔️ | Fly, Auto Win, ESP, Item TP & More | 2025 Mega Update
 
 Welcome to the **official Dead Rails Script repository**, your all-in-one solution for mastering chaos on the rails. Whether you’re dodging bullets or flying across boxcars, this **fully keyless** Roblox script gives you god-like control over the Dead Rails battlefield — all without tedious verifications or key systems.
 
